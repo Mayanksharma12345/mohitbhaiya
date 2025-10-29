@@ -1,1 +1,1 @@
-# mohitbhaiya
+Senior Accounts Receivable Analyst with 4.8 years in healthcare revenue cycle management. Expertise in full-cycle AR, denial management, and insurance follow-up, and consistently focused on streamlining processes and driving strategic initiatives to improve cash flow and reduce aged receivables. Also passionate about process optimization and looking forward to applying these skills in a challenging new role where I can contribute to operational excellence.
